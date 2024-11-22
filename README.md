@@ -12,10 +12,12 @@ Hi!👋 I am an IT student with the goal of creating a working Skynet!🤖
 
 My favorite food is pizza 🍕 with pineapples for toppings, pinapples for sauce, pineapples for crust, pineapples for cheese and pineapples for pineapples 🍍🍍🍍
 
-**Series**
+**FOOD**
+
 Fullmetal Alchemist is one of the best series there is! 🐶👧 Ed...ward
 
-**Movie**
+**MOVIE**
+
 Watching Lord of the Rings trilogy (extended) is my religion ⚔️
 
 ---
